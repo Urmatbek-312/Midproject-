@@ -1,1 +1,1 @@
-# Midproject-
+# Midproject-The project is a science that characterizes some of the greatest scientists without whom today's life would not be so simple; the project also lists several materials that may interest a person in the knowledge of physics and chemistry, and with the help of this information you can join the ranks of scientists who are engaged in volunteering in the field of science. The materials represent a lot and you can follow the latest news in the world of science.
